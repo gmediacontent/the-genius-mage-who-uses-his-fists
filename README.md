@@ -1,1 +1,2 @@
-# the-genius-mage-who-uses-his-fists
+# The Genius Mage Who Uses His Fists
+Le champion du monde de MMA Kim Jin-ho s’est réveillé dans le monde de Last Saver, sous les traits du sorcier Zed Arahan. Dans cet autre monde, les chevaliers combattent au corps à corps et les sorciers à distance. Pourtant, il semble que Zed ne possède aucun pouvoir magique ?! Un génie qui brise les lois immuables est apparu !
